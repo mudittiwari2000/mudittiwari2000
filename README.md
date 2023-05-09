@@ -8,4 +8,4 @@
 - 📫 How to reach me: 
   - **Email**: mudittiwari2000@gmail.com
   - **Phone Number**: +91-8982780144
-- 😄 Pronouns: He
+- 😄 Pronouns: He, Him
